@@ -1,0 +1,2 @@
+# smartoneinok.github.io
+ 
